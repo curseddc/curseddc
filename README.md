@@ -1,0 +1,3 @@
+- 👋 Hi, I’m cursed
+- 👀 I’m interested in discord
+- 🌱 I’m currently learning how to become pro
